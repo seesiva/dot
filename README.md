@@ -1,2 +1,0 @@
-# dot
-Daily one thirumurai
